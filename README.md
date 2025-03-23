@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ahmad9897-png
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning in BS program in CS Dept
-- 💞️ I’m looking to collaborate on coding wxplores new skills
+- 💞️ I’m looking to collaborate on coding exploring  new skills
 - 📫 How to reach me bscs24f02@namal.edu.pk
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
